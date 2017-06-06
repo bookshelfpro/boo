@@ -1,0 +1,1 @@
+hadi bakalým baþladýk
