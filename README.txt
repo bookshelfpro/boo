@@ -1,2 +1,2 @@
 hadi bakalým baþladýk
-biþeler daha ekleyim bakiyim
+bu satýrý yeni de yazdým.
